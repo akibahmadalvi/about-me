@@ -1,2 +1,2 @@
 # about-me
-About ,Akib A. Alvi AKA me
+About Akib A. Alvi AKA me
